@@ -27,7 +27,7 @@ Demonstrated expertise in research and project management, designing surveys and
 
 # Elevate Your Healthcare IT Solutions with a Proven Leader:
 
-## h2 Transform your products and services with a seasoned Product Manager dedicated to driving innovation, boosting revenue, and ensuring customer satisfaction. Let's collaborate to shape the future of healthcare technology.
+## Transform your products and services with a seasoned Product Manager dedicated to driving innovation, boosting revenue, and ensuring customer satisfaction. Let's collaborate to shape the future of healthcare technology.
 
 [Learn More at Linked In](https://www.linkedin.com/in/barry-j-davolt/)
 
